@@ -1,2 +1,17 @@
-# Real-English-with-Eugene-
-🎓 Real English with Eugene 🇬🇧 Curso de Inglês 100% Online 🌐 Aprenda inglês de forma prática, rápida e eficaz. Fale com confiança em situações reais do dia a dia e melhore sua pronúncia desde as primeiras aulas. 📚 O que você vai ganhar: • Conversação real em inglês • Pronúncia correta e natural • Gramática simplificada • Vocabulário essêncial.
+ 🎓 Curso Internacional de Inglês – Real English with Eugene 🇬🇧
+Aprenda inglês de forma simples, prática e profissional, onde quer que esteja. Ideal para iniciantes e nível intermédio.
+📚 Inclui:
+• Gramática completa
+• Conversação em inglês
+• Pronúncia correta
+• Vocabulário do dia a dia
+• Expressões reais
+• Tag Questions
+• Listening & Writing
+• Tradução Português ↔ Inglês
+• Correção de erros
+• Exercícios práticos
+💻 Aulas 100% online
+🕒 Horários flexíveis
+👨‍🏫 Professor: Eugénio José
+🚀 Comece hoje e fale inglês com confiança!
